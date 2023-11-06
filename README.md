@@ -6,6 +6,6 @@
 - With Dropdown Mega Menu
 - With a beautiful minimalist interface.
 
-💙 Join the channel to see more videos like this. [Bedimcode](https://www.youtube.com/@aygroupcode)
+💙 Join the channel to see more videos like this. [AYGROUPCODE](https://www.youtube.com/@aygroupcode)
 
-![preview img](/images.jpg)
+![preview img](/imgss.jpg)
